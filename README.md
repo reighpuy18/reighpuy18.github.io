@@ -1,1 +1,1 @@
-# Reighblog
+# Reigh
